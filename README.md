@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning MCA.
 - 💞️ I’m looking to collaborate with Web Developers.
 - 📫 suryaprakashrana302@gmail.com
-- 😄 Pronouns: Rana
+- 😄 Pronouns: RANA 
 - ⚡ Fun fact: Cricket🏏, Watching Sci-Fi Series, Volleyball🏐, Coding.
 
 <!---
