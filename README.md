@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Surya Prakash Rana.
 - 👀 I’m interested in Web Development. 
 - 🌱 I’m currently learning MCA.
-- 💞️ I’m looking to collaborate on Web Developer.
+- 💞️ I’m looking to collaborate with Web Developers.
 - 📫 suryaprakashrana302@gmail.com
 - 😄 Pronouns: Rana
 - ⚡ Fun fact: Cricket🏏, Watching Sci-Fi Series, Volleyball🏐, Coding.
